@@ -3,5 +3,4 @@
 - alura student! 📚
 
 
-!{}()
-https://tenor.com/pt-BR/view/descendants-ディセンダント-gif-24043583
+![](https://tenor.com/pt-BR/view/descendants-ディセンダント-gif-24043583)
