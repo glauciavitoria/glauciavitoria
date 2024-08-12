@@ -1,6 +1,6 @@
  welcome to my profile 🤍
 **meu nome é Glaucia Vitória.**
-- alura student! 📚[Alura](https://www.alura.com.br)
+- [alura](https://www.alura.com.br) student! 📚
 
 
 ![](https://tenor.com/bX68J.gif)
